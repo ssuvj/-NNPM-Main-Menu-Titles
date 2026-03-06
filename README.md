@@ -1,2 +1,4 @@
 # -NNPM-Main-Menu-Titles
-naramo nuclear plant
+| # | reported | date | notable |
+| - | -------- | ---- | ------- |
+| 1 | No NOSHA allowed. | 17 feb. 2026 | |
