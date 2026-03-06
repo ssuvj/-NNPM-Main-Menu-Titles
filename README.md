@@ -21,3 +21,13 @@
 | 19 | "Did you remember to turn the coolants on?" | 17 feb. 2026 | |
 | 20 | "What do you mean experienced? I used AI on my ANRO test." | 17 feb. 2026 | |
 | 21 | half life 3 | 17 feb. 2026 | |
+| 22 | "Why are there 25 red triangles in the control room?" | 17 feb. 2026 | |
+| 23 | "Barney, get me feedwater!" | 17 feb. 2026 | |
+| 24 | "WE HAVE 3.6 ROENTGEN!" | 17 feb. 2026 | |
+| 25 | "It's reverse electric kettle, what can go wrong?" | 17 feb. 2026 | |
+| 26 | why r all these so unfunny | 17 feb. 2026 | |
+| 27 | sigh ,why did I ask the Community for quotes? Why was I so stupid todo that" | 17 feb. 2026 | |
+| 28 | What is this bruh | 17 feb. 2026 | |
+| 29 | if pup joins your game, don't shoot at him, the bullets always miss | 17 feb. 2026 | |
+| 30 | Update in 3.. 2.. 1.. | 17 feb. 2026 | partial |
+| 31 | Respect PupNetx. | 17 feb. 2026 | |
